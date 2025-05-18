@@ -21,7 +21,7 @@ I believe rural communities deserve powerful, localized technology. I build for 
 I’m open to collaboration, mentorship, funding opportunities, or just sharing ideas around inclusive innovation and tech for Africa.I would appreciate an international community of young people.
 
 - **Email:** godfreyainebyoona36@gmail.com  
-- **LinkedIn:** [Ainebyoona Godfrey](https://www.linkedin.com/in/ainebyoona-godfrey)  
+- **LinkedIn:** [Godfrey Ainebyoona](https://www.linkedin.com/in/godfrey-ainebyoona)  
 - **GitHub Projects:** *coming soon* – stay tuned!
 - YouTube @godfreyainebyoona
 
