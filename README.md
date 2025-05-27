@@ -19,6 +19,7 @@ I believe rural communities deserve powerful, localized technology. I build for 
 
 ## Let’s Connect
 I’m open to collaboration, mentorship, funding opportunities, or just sharing ideas around inclusive innovation and tech for Africa.I would appreciate an international community of young people.
+I have started a student creativity movement even outside computing #ideawood , you can reach out my socials.
 
 - **Email:** godfreyainebyoona36@gmail.com  
 - **LinkedIn:** [Godfrey Ainebyoona](https://www.linkedin.com/in/godfrey-ainebyoona)  
