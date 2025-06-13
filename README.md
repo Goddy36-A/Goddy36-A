@@ -24,6 +24,6 @@ I have started a student creativity movement even outside computing #ideawood , 
 - **Email:** godfreyainebyoona36@gmail.com  
 - **LinkedIn:** [Godfrey Ainebyoona](https://www.linkedin.com/in/godfrey-ainebyoona)  
 - **GitHub Projects:** *coming soon* – stay tuned!
-- YouTube @godfreyainebyoona
+- YouTube @IdeawoodUganda
 
 > “Start where you are. Use what you have. Do what you can.” #ideawood_uganda
